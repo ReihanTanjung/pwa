@@ -156,7 +156,3 @@ Intinya, gambar ini menjelaskan bahwa:
 
 ---
 
-Kalau kamu mau, aku bisa bantu:
-
- rapihin jadi materi PPT
- atau bikin ringkasan super singkat buat presentasi 👍
